@@ -1,2 +1,1 @@
-# adam-bananasz
-blooket hacksz
+pls readey readey
